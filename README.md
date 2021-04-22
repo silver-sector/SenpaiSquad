@@ -1,9 +1,2 @@
-# Repository-Baru
-# Repository-Baru
-# RidhoSenpai
-# RidhoSenpai
-# RidhoSenpai
-# RidhoSenpai
-"# RidhoSenpai" 
-# RidhoSenpai
-# SenpaiSquad
+# Bjerrr ga kelar asw
+# hangdeh
